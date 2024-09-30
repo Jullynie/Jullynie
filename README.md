@@ -1,4 +1,7 @@
-Oii, meu nome é Julia
+## Oii, meu nome é Julia
 
--sou aluna
--minha cor favorita é preto
+- sou aluna
+- minha cor favorita é preto 🖤
+- estou me desenvolvendo na linguagem Java Script
+  
+
