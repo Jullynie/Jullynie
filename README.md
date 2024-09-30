@@ -5,6 +5,7 @@
 - estou me desenvolvendo na linguagem Java Script
 - amo gatos! 🐱💙
 - gosto bastante de k-pop 🎧🎵
+- adoro desenhar ✏️
 - Entrar em contato comigo 📫
 - Julia.keverhaus@escola.pr.gov.br
   
