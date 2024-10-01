@@ -6,6 +6,7 @@
 - amo gatos! 🐱💙
 - gosto bastante de k-pop 🎧🎵
 - adoro desenhar ✏️
+- amo animes 🍜🎐
 - Entrar em contato comigo 📫
 - Julia.keverhaus@escola.pr.gov.br
   
